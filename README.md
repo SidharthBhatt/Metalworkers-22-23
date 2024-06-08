@@ -1,2 +1,2 @@
 #See more information:
-https://www.17252.live/home
+https://sites.google.com/view/17252
